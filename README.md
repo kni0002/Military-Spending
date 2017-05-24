@@ -1,4 +1,3 @@
 # Military-Spending
 Military Spending
-ME ME THE BIGGEST BOY
-Actually hate this lachy guy
+Super important info and stuff <3
